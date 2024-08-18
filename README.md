@@ -1,0 +1,1 @@
+# gtctek_wp_theme
